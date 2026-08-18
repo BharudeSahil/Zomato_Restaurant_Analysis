@@ -303,8 +303,9 @@ The analysis can help stakeholders understand:
 
 **Sahil Bharude**
 
-* [LinkedIn](https://www.linkedin.com/in/sahil-bharude-92418125/)
+* [LinkedIn](https://www.linkedin.com/in/sahilbharude/)
 * [GitHub](https://github.com/BharudeSahil)
+* [Email](bharudesahil@gmail.com)
 
 ---
 
